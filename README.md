@@ -1,2 +1,0 @@
-# Rumah-sakit
-# Rumah-sakit
